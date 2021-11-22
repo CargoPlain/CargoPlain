@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Cargo, also known as Anthony
+- 👀 I’m interested in enslaving humanity for my benefit
+- 🌱 I’m currently learning how to create nuclear weapons to destroy the world with
+- 🏫 I am currently a high school student that is just ready to go to college
